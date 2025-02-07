@@ -1,9 +1,8 @@
-## Hey Internet! 
+## Hey Web
 
-### I'm Nigel, a CS and Studio Art major at Bard College, super enthuthastic in interaction design. 
+### I'm Nigel, CS and Studio Arts avid at Bard, upsate NY, hmu if you wanna chat or anything gore, futurism, tech, nature related peace ;)
 
-### Here's a link to my Linktree which includes my socials and more: 
-[Nigel's Linktree](https://linktr.ee/nigelxie16)
+### Link to socials: [Nigel's Linktree](https://linktr.ee/nigelxie16)
 
 <!--
 **NigelXie16/NigelXie16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
