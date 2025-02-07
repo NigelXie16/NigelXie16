@@ -1,6 +1,8 @@
 ## Hey Web
 
-### I'm Nigel, CS and Studio Arts avid at Bard, upsate NY, hmu if you wanna chat or anything gore, futurism, tech, nature related peace ;)
+### I'm Nigel, CS and Studio Arts avid at Bard Upsate NY
+### hmu if you wanna chat about gore, futurism, tech, nature related
+### peace and take care ;)
 
 ### Link to socials: [Nigel's Linktree](https://linktr.ee/nigelxie16)
 
