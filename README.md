@@ -2,10 +2,9 @@
 
 I'm Nigel, he/him, a CS and Studio Arts enthusiast at Bard Upstate NY 🔮 🤘🏻
 Hmu if you wanna chat about gore, futurism, tech, or nature 🌿
-Peace and take care 😉 
 
 Link to socials : [Nigel's Linktree](https://linktr.ee/nigelxie16)
-> Yes I'm joining the luddite and switching to emails and phones, update soon ;)
+> I'm joining the LUDDITE switching to emails and numbers, update soon ;)
 
 Fun fact: I dropped my phone in a outhouse once with 30 people's pee and shit in it, it was smelly 
 
