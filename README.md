@@ -4,7 +4,7 @@
 ### hmu if you wanna chat about gore, futurism, tech, nature related
 ### peace and take care ;)
 
-### Link to socials: [Nigel's Linktree](https://linktr.ee/nigelxie16)
+> Link to socials: [Nigel's Linktree](https://linktr.ee/nigelxie16)
 
 <!--
 **NigelXie16/NigelXie16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
