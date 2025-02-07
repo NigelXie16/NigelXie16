@@ -1,15 +1,18 @@
-## Hey Web
+## Hey Web 🌐
 
-### I'm Nigel, CS and Studio Arts avid at Bard Upsate NY
-### hmu if you wanna chat about gore, futurism, tech, nature related
-### peace and take care ;)
+### I'm Nigel, he/him, a CS and Studio Arts enthusiast at Bard Upstate NY 🔮 🤘🏻
+### Hmu if you wanna chat about gore, futurism, tech, or nature 🌿
+### Peace and take care 😉 
 
-> Link to socials: [Nigel's Linktree](https://linktr.ee/nigelxie16)
+> Link to socials : [Nigel's Linktree](https://linktr.ee/nigelxie16)
+> Yes I'm joining the luddite and switching to emails and phones, update soon ;)
+
+Fun fact: I dropped my phone in a outhouse once with 30 people's pee and shit in it, it was smelly 
 
 <!--
 **NigelXie16/NigelXie16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Here are some ideas to get you started 
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
