@@ -1,7 +1,7 @@
 # Hey Web 🌐
 
 I'm Nigel, he/him, a CS and Studio Arts enthusiast at Bard Upstate NY 🔮 🤘🏻
-Hmu if you wanna chat about gore, futurism, tech, or nature 🌿
+come chat gore, futurism, tech, nature ur whatever you want🌿
 
 Link to socials : [Nigel's Linktree](https://linktr.ee/nigelxie16)
 > I'm joining the LUDDITE switching to emails and numbers, update soon ;)
